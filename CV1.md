@@ -13,5 +13,5 @@ I am 30 years aged marketologist from Russia. I want to change my speciality and
 # Образование
 *Diplomized Accountant with passion to marketing and thirst for money*
 # Английский язык
-*From ***Upper-Intermediate*** to ***Advanced*** (according to different tests)*
+*From ***Upper-Intermediate*** to ***Advanced*** (according to different tests).*
 *Thanks to Netflix by the way*
